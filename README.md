@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @red-14
-- 👀 I’m interested in poop
+- 👀 I’m interested in poop and minecraft
 - 🌱 I’m currently learning poop
 - 💞️ I’m looking to collaborate on poop
 - 📫 How to reach me no
